@@ -1,0 +1,1 @@
+https://coolors.co/palette/0d1321-1d2d44-3e5c76-748cab-f0ebd8
